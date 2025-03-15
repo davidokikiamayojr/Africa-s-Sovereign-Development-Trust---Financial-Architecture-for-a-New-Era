@@ -44,7 +44,7 @@ We invite:
 |----------------|--------------------|--------------------|
 | Cargo & VIP Aviation | Ndege Aerospace © | Ready for Capital Deployment |
 | Blockchain Trading Platform | Ndege MarketPlace © | Soft Launch in Progress |
-| Wildlife & Infrastructure | The Ndege Foundation © | Raising Capital for 10+ Projects |
+| Wildlife & Infrastructure | The Ndege Foundation © | Syndicating Capital for 10+ Projects |
 
 ---
 
