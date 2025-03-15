@@ -48,4 +48,8 @@ We invite:
 
 ---
 
-## 👑 Step Into Africa's Next Financial Era  
+## 👑 Step Into Africa's Next Financial Era 
+
+This is the blueprint for Africa's financial independence.
+
+ 
