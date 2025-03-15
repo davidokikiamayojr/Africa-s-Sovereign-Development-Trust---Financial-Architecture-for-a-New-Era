@@ -19,7 +19,7 @@ To build **Africa’s first trillion-dollar institution** with $1 Trillion in As
 ## 🔗 Key Resources  
 - [Africa's Sovereign Development Trust℠ Web Page](https://www.ndege.co.ke/africas-sovereign-development-trust)  
 - [Our LinkedIn Article: "The Era of Dependency is Over. Africa Must Now Build for Ownership."](https://www.linkedin.com/pulse/africas-sovereign-development-trust)  
-- [Our Research Paper: "The Founding of The Ndege Group - Africa's Sovereign Development Trust℠"](link to PDF upload on ResearchGate once approved)  
+- [Our Research Paper: "The Founding of The Ndege Group - Africa's Sovereign Development Trust℠"](https://www.academia.edu/116572328/Data_Protection_Laws_Judicial_Interpretations_and_Global_Governance_Navigating_the_Modern_Political_Terrain)  
 
 ---
 
